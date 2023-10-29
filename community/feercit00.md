@@ -9,7 +9,7 @@ Você pode me encontrar e se conectar comigo nos seguintes links:
 - [LinkedIn](https://www.linkedin.com/in/fernanda-cit-565a83211/)
 - [GitHub](https://github.com/feercit00)
 
-## I am passionate about</br>
+## I am passionate about
 📈 Data Analysis</br>
 🧠 Books</br>
 👀 Criminal Cases</br>
